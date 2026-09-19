@@ -1,9 +1,13 @@
 ![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/e4e7660e1ab98a0997bc9d5daf1969f9.gif)
-꒰⁠꒰⁠﹐ ⑅ 𝑪𝒂𝒏𝒅𝒚 𝑨𝒑𝒑𝒍𝒆 ִ ࣪.ᐟ.ᐟ 🍎
-⋆. 𐙚 ˚ 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒂𝒏 𝒂𝒑𝒑𝒍𝒆, 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒏𝒐𝒕 ִ ࣪𖤐
-ゝ ◡ 𝒄𝒉𝒂𝒏𝒈𝒊𝒏𝒈 𝒎𝒚 𝒍𝒐𝒐𝒌 𝒊𝒔 𝒉𝒂𝒍𝒇 𝒕𝒉𝒆 𝒇𝒖𝒏 ⊹₊⟡⋆
-﹒꒷ ⋌ 𝒅𝒐𝒏'𝒕 𝒂𝒔𝒔𝒖𝒎𝒆 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒆~!
-🍎 𝒆𝒑𝒊𝒄 ⟡ 𝒃𝒐𝒎𝒃𝒆𝒓 ⟡ 𝒎𝒊𝒅𝒅𝒍𝒆
+-> ꒰꒰﹐ ⑅ 𝑪𝒂𝒏𝒅𝒚 𝑨𝒑𝒑𝒍𝒆 ִ ࣪.ᐟ.ᐟ 🍎 <-
+
+-> ⋆. 𐙚 ˚ 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒂𝒏 𝒂𝒑𝒑𝒍𝒆, 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒏𝒐𝒕 ִ ࣪𖤐 <-
+
+-> ゝ ◡ 𝒄𝒉𝒂𝒏𝒈𝒊𝒏𝒈 𝒎𝒚 𝒍𝒐𝒐𝒌 𝒊𝒔 𝒉𝒂𝒍𝒇 𝒕𝒉𝒆 𝒇𝒖𝒏 ⊹₊⟡⋆ <-
+
+-> ﹒꒷ ⋌ 𝒅𝒐𝒏'𝒕 𝒂𝒔𝒔𝒖𝒎𝒆 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒆~! <-
+
+-> 🍎 𝒆𝒑𝒊𝒄 ⟡ 𝒃𝒐𝒎𝒃𝒆𝒓 ⟡ 𝒎𝒊𝒅𝒅𝒍𝒆 <-
 <!--
 **CandyAppleCore/CandyAppleCore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
