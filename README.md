@@ -8,3 +8,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;﹒꒷ ⋌ 𝒅𝒐𝒏'𝒕 𝒂𝒔𝒔𝒖𝒎𝒆 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒆~!
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🍎 𝒆𝒑𝒊𝒄 ⟡ 𝒃𝒐𝒎𝒃𝒆𝒓 ⟡ 𝒎𝒊𝒅𝒅𝒍𝒆
+୨୧ ────────────── ୨୧
+
+꒰ 🍎 ꒱ [𝑴𝒂𝒊𝒏 𝑰𝒏𝒇𝒐](https://rentry.co/candyapplehashii) ִ ࣪.ᐟ
+
+୨୧ ────────────── ୨୧
