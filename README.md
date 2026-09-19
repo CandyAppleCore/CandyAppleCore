@@ -1,4 +1,4 @@
-## Hi there 👋
+![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/e4e7660e1ab98a0997bc9d5daf1969f9.gif)
 
 <!--
 **CandyAppleCore/CandyAppleCore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
