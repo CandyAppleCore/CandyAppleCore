@@ -14,4 +14,4 @@
 
 ୨୧ ────────────── ୨୧
 
-![](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000022971-removebg-preview.png){100%}
+![](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000022971-removebg-preview.png){40%}
