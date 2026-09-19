@@ -13,3 +13,5 @@
 ꒰ 🍎 ꒱ [𝑴𝒂𝒊𝒏 𝑰𝒏𝒇𝒐](https://rentry.co/candyapplehashii) ִ ࣪.ᐟ
 
 ୨୧ ────────────── ୨୧
+
+![](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/4d72a1e0354dbfdc423e8648d2eac242.jpg){100%}
