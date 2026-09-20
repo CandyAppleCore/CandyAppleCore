@@ -1,5 +1,6 @@
 ![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/e4e7660e1ab98a0997bc9d5daf1969f9.gif)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36353165333662356231356131313337643631376632623135...62662d66322f733132383078313932302f323831303834653164313061613730393034396266623061363966363036613465353037386465352e706e6a%20(4).png)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![]
+![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/tumblr_7f5d76f805eb1a334d3b9b8ce401f931_dd69c52f_1280.png)
 ꒰꒰﹐ ⑅ 𝑪𝒂𝒏𝒅𝒚 𝑨𝒑𝒑𝒍𝒆 ִ ࣪.ᐟ.ᐟ 🍎
 
 &nbsp;&nbsp;&nbsp;&nbsp;⋆. 𐙚 ˚ 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒂𝒏 𝒂𝒑𝒑𝒍𝒆, 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒏𝒐𝒕 ִ ࣪𖤐 &nbsp;&nbsp;&nbsp;&nbsp;
