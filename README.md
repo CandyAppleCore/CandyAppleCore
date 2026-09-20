@@ -28,5 +28,7 @@
 𝑫𝒆𝒄𝒆𝒊𝒕 𝑪𝒐𝒐𝒌𝒊𝒆𝒔 𝒂𝒓𝒆 𝒂 𝒘𝒆𝒊𝒓𝒅 𝒄𝒐𝒎𝒇𝒐𝒓𝒕 𝒇𝒐𝒓 𝒎𝒆... 𝒎𝒂𝒚𝒃𝒆 𝑰 𝒋𝒖𝒔𝒕 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒊𝒂𝒓 𝒇𝒂𝒄𝒆𝒔~ (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)
 ![Deceit Cookie](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000018423-removebg-preview.png)
 ![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/tumblr_7f5d76f805eb1a334d3b9b8ce401f931_dd69c52f_1280.png)
-| | &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<img src="https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000022995-removebg-preview.png" width="35"> | |
-|:---:|:---:|:---:|
+<p align="center">
+
+| | ![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000022985-removebg-preview.png) | |
+| :--- | :---: | :--- |
