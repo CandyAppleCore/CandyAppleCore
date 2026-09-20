@@ -19,5 +19,14 @@
 
 ୨୧ ────────────── ୨୧
 
+![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/tumblr_7f5d76f805eb1a334d3b9b8ce401f931_dd69c52f_1280.png)
+![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/c9b1d1206516171bb1a410de446e941b.gif)
+![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/tumblr_7f5d76f805eb1a334d3b9b8ce401f931_dd69c52f_1280.png)
+𝒊𝒏𝒕 𝒎𝒆 𝒇𝒓𝒆𝒆𝒍𝒚 𝒊𝒇 𝑰'𝒎 𝒏𝒐𝒕 𝒃𝒖𝒔𝒚~!
+𝒃𝒖𝒔𝒚 = 𝒑𝒍𝒔 𝒅𝒐𝒏'𝒕 𝒊𝒏𝒕 𝒖𝒏𝒍𝒆𝒔𝒔 𝒘𝒆'𝒓𝒆 𝒄𝒍𝒐𝒔𝒆 / 𝑫𝑵𝑰𝑼𝑪 ♡
+
+𝑫𝒆𝒄𝒆𝒊𝒕 𝑪𝒐𝒐𝒌𝒊𝒆𝒔 𝒂𝒓𝒆 𝒂 𝒘𝒆𝒊𝒓𝒅 𝒄𝒐𝒎𝒇𝒐𝒓𝒕 𝒇𝒐𝒓 𝒎𝒆... 𝒎𝒂𝒚𝒃𝒆 𝑰 𝒋𝒖𝒔𝒕 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒊𝒂𝒓 𝒇𝒂𝒄𝒆𝒔~ (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)
+![Deceit Cookie](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000018423-removebg-preview.png)
+![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/tumblr_7f5d76f805eb1a334d3b9b8ce401f931_dd69c52f_1280.png)
 | | &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<img src="https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000022995-removebg-preview.png" width="35"> | |
 |:---:|:---:|:---:|
