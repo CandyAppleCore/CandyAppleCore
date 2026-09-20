@@ -1,3 +1,5 @@
+<img src="https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/1000022986-removebg-preview%20(1).png" width="90">
+
 ![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/e4e7660e1ab98a0997bc9d5daf1969f9.gif)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 ![Candy Apple](https://raw.githubusercontent.com/CandyAppleCore/CandyAppleCore/main/tumblr_7f5d76f805eb1a334d3b9b8ce401f931_dd69c52f_1280.png)
